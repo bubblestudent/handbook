@@ -12,8 +12,6 @@ Marketing is everyone’s responsibility. Whilst our marketing geniuses will be 
 
 # What we stand for
 
-----------
-
 ## Values
 
 ### Collaborate
